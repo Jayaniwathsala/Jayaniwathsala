@@ -8,7 +8,7 @@
 
 <img align="right" alt="Cording" width="300" src="https://media.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif" />
 
-- 🌱 I’m currently learning **UI/UX Designing and Frontend Developing**
+- 🌱 I’m currently learning **UI/UX Designing and Software Developing**
 
 - 👨‍💻 All of my projects are available at [https://github.com/Jayaniwathsala/portfolio](https://github.com/Jayaniwathsala/portfolio)
 
