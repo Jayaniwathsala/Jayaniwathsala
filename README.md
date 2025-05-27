@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **jayaniwathsala25@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://www.canva.com/design/DAF1-Tewko4/aGtq8Lha6mH_sa4gR0ccmQ/view?utm_content=DAF1-Tewko4&utm_campaign=share_your_design&utm_medium=link&utm_source=shareyourdesignpanel)
+- 📄 Know about my experiences [Resume]([https://www.canva.com/design/DAF1-Tewko4/aGtq8Lha6mH_sa4gR0ccmQ/view?utm_content=DAF1-Tewko4&utm_campaign=share_your_design&utm_medium=link&utm_source=shareyourdesignpanel](https://www.canva.com/design/DAF4VOM9x70/Zr9FkVFdSy99dX6WY1H7Ng/edit?utm_content=DAF4VOM9x70&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton))
 
 - ⚡ Fun fact **I am Funny**
 
